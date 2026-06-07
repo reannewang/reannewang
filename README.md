@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @reannewang
 - 👀 I’m interested in idk
 - 🌱 I’m currently learning maths
-- 📫 How to reach me ah24243@qmul.ac.uk
+- 📫 How to reach me reannejywang@gmail.com
 - 😄 Pronouns: her
 - ⚡ Fun fact: I love python so much
 
